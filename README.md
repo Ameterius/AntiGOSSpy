@@ -1,0 +1,2 @@
+# AntiGOSSpy
+! USEFUL ONLY FOR RUSSIA/BELARUS ! Модуль против MAX
